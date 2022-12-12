@@ -4,5 +4,5 @@
 ### 👯 I’m looking to collaborate on nothing.
 ### 🤔 I’m looking for help with nothing.
 ### 💬 Ask me about nothing.
-### 📫 How to reach me: Dont
+### 📫 How to reach me: Dont.
 ### 😄 Pronouns: void, nothing, noone, yobmeF
